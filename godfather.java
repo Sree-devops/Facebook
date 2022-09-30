@@ -1,2 +1,1 @@
-Chiru new movie is god fathe
-relasing on 5th
+Chiru new movie is god father
